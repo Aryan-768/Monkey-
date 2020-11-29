@@ -1,0 +1,1 @@
+take warm water,add bread flour,then make a dough,then add the dried yeast,prepare the pan with olive oil,then cook for 15
