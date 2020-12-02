@@ -1,1 +1,1 @@
-take bread flour,mix it with warm water,
+make dough,apply sauce then chese then cook.
